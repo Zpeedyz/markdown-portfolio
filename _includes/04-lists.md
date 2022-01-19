@@ -1,1 +1,10 @@
-Replace this with a list of your favorite things.
+# I like this stuff
+:+1:
+🌳
+🐶
+  - 🐕
+  - 🦮
+🐱
+  - 🐈‍⬛
+  -  🐈
+  -  😹
